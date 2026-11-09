@@ -462,6 +462,8 @@ Classifica probabilità:
 
 ---
 
+https://sites.google.com/view/itinerariolapponiaenorvegia/full-page-embed
+
 # Consiglio finale
 
 Per una prima esperienza artica nel Nord Europa, l'itinerario:
