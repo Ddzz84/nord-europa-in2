@@ -1,480 +1,284 @@
-# Viaggio Lapponia Svedese + Norvegia Artica
-## 8 giorni / 7 notti
-### Periodo consigliato: 6 → 13 febbraio 2027
+Di seguito trovi la versione aggiornata dell'itinerario con le date e gli orari che hai già fissato:
 
-**Partecipanti:** 2 persone
+Lapponia Svedese + Norvegia Artica
+3 → 11 febbraio 2027 (9 giorni / 8 notti)
 
-**Budget obiettivo:** 1.500 €/persona
+Partecipanti: 2 persone
 
-**Tipologia:** Aurora Boreale, Road Trip, Natura, SPA, Fotografia
+Volo confermato:
 
----
+03/02 Milano → Copenaghen
+Arrivo a Copenaghen ore 20:00
+04/02 volo Copenaghen → Kiruna ore 08:00
+11/02 volo Tromsø → Milano ore 11:00
+Calendario sintetico
+Data	Località	Pernottamento03 Feb	Copenaghen	Copenaghen
+04 Feb	Kiruna	Kiruna
+05 Feb	Kiruna / Icehotel	Kiruna
+06 Feb	Abisko	Abisko
+07 Feb	Abisko	Abisko
+08 Feb	Lofoten (Svolvær)	Svolvær
+09 Feb	Lofoten	Svolvær
+10 Feb	Tromsø	Tromsø
+11 Feb	Rientro	-
+Giorno 1
+Mercoledì 3 febbraio
+Milano → Copenaghen
 
-# Sintesi
+Arrivo previsto: 20:00
 
-Questo itinerario combina:
+Serata consigliata
 
-- Lapponia svedese
-- Icehotel
-- Aurora Boreale ad Abisko
-- Treno panoramico Kiruna-Narvik
-- Road Trip alle Lofoten
-- Tromsø
-- SPA artica
+Check-in in zona:
 
-Modalità di viaggio:
+Nyhavn
+Kongens Nytorv
+Centrale
 
-- Voli internazionali
-- Treni regionali
-- Auto a noleggio
-- Volo domestico Norvegia
+Passeggiata:
 
----
+Nyhavn illuminata
+Canale principale
+Piazza del municipio
 
-# Date consigliate
+Cena:
 
-| Priorità | Periodo |
-|----------|----------|
-| ⭐ Migliore | 06/02/2027 - 13/02/2027 |
-| Ottima | 07/02/2027 - 14/02/2027 |
-| Economica | 01/02/2027 - 08/02/2027 |
-| Da evitare | 13/02/2027 - 20/02/2027 |
+Smørrebrød tradizionale
+Birreria danese
 
----
+Hotel consigliati:
 
-# Trasporti
+Budget
+Wakeup Copenhagen Borgergade
+Cabinn City
+Fascia media
+Scandic Spectrum
+CitizenM Copenhagen
 
-## Volo di andata
+Notte: ✅ Copenaghen
 
-Milano (MXP/LIN/BGY)
-↓
+Giorno 2
+Giovedì 4 febbraio
+Copenaghen → Kiruna
 
-Kiruna (KRN)
+Partenza:
 
-Durata:
+08:00
 
-- 5-8 ore
-- 1 scalo (solitamente Stoccolma)
+Arrivo previsto:
 
-Costo previsto:
+12:00-13:00 circa
 
-170-250 € per persona
+Pomeriggio
+Giro città
+Chiesa di Kiruna
+Centro storico
 
----
+Nessuna attività impegnativa.
 
-## Treno
+Notte: ✅ Kiruna
 
-### Kiruna → Abisko
-
-Durata:
-
-~1 ora
-
-Costo:
-
-15 € a persona
-
----
-
-### Abisko → Narvik
-
-Durata:
-
-1h30 - 2h
-
-Costo:
-
-15 € a persona
-
----
-
-## Auto a noleggio
-
-Ritiro:
-
-Narvik
-
-Consegna:
-
-Evenes Airport
-
-Durata:
-
-2 giorni
-
-Costo:
-
-- 220 € auto
-- 50 € carburante
-
-Totale coppia:
-
-270 €
-
----
-
-## Volo interno
-
-Evenes
-↓
-
-Tromsø
-
-Costo stimato:
-
-180 € coppia
-
----
-
-## Volo ritorno
-
-Tromsø
-↓
-
-Milano
-
-Costo:
-
-120-220 € per persona
-
----
-
-# Itinerario
-
-## Giorno 1
-### Milano → Kiruna
-
-Attività:
-
-- Arrivo
-- Check-in
-- Passeggiata nel centro
-
-Pernottamento:
-
-Kiruna
-
----
-
-## Giorno 2
-### Kiruna + Icehotel
+Giorno 3
+Venerdì 5 febbraio
+Icehotel
 
 Mattina:
 
-- Visita Icehotel
+Trasferimento a Jukkasjärvi
+
+Attività
+Icehotel
+Galleria di ghiaccio
+Sculture
+Ice Bar
 
 Pomeriggio:
 
-- Centro città
-- Cultura Sami
-
-Pernottamento:
-
-Kiruna
-
----
-
-## Giorno 3
-### Kiruna → Abisko
-
-Trasferimento:
-
-Treno
-
-Attività:
-
-- Abisko National Park
-- Aurora Sky Station
-
-Pernottamento:
-
-Abisko
-
----
-
-## Giorno 4
-### Abisko
-
-Attività:
-
-- Trekking sulla neve
-- Racchette
-- Fotografia
+Rientro a Kiruna
+Relax
 
 Sera:
 
-- Aurora Boreale
+Prima caccia aurora (senza tour organizzato)
 
-Pernottamento:
+Notte: ✅ Kiruna
 
+Giorno 4
+Sabato 6 febbraio
+Kiruna → Abisko
+
+Treno mattutino
+
+Durata:
+
+circa 1 ora
+
+Pomeriggio
+Lago Torneträsk
+Abisko National Park
+Sera
+
+Aurora Sky Station
+
+Notte: ✅ Abisko
+
+Giorno 5
+Domenica 7 febbraio
 Abisko
 
----
+Giornata piena
 
-## Giorno 5
-### Abisko → Narvik → Svolvær
+Possibili attività:
 
-Trasferimento:
+Escursione con ciaspole
+Tour fotografico
+Motoslitte
+Sera
 
-- Treno fino a Narvik
-- Ritiro auto
+Seconda notte aurora
 
-Guida:
+Notte: ✅ Abisko
 
-3h30 circa
+Giorno 6
+Lunedì 8 febbraio
+Abisko → Narvik → Lofoten
 
-Soste consigliate:
+Mattina:
 
-- Tjeldsund
-- Austnesfjorden
+Treno per Narvik
 
-Pernottamento:
+Durata:
 
-Svolvær
+circa 2 ore
 
----
+Ritiro auto
 
-## Giorno 6
-### Lofoten
+Narvik
 
-Road Trip:
+Guida panoramica
 
-- Henningsvær
-- Ramberg
-- Hamnøy
-- Sakrisøy
-- Reine
+Narvik → Svolvær
 
-Pernottamento:
+circa 3h30
 
-Svolvær
+Soste:
 
----
+Tjeldsund
+Austnesfjorden
 
-## Giorno 7
-### Lofoten → Tromsø
+Notte: ✅ Svolvær
 
-Trasferimento:
+Giorno 7
+Martedì 9 febbraio
+Lofoten complete
 
-- Auto fino ad Evenes
-- Volo per Tromsø
+Road trip completo
 
-Attività:
+Tappe
+Henningsvær
+Ramberg
+Hamnøy
+Sakrisøy
+Reine
 
-- Tromsø centro
-- Porto
-- Fjellheisen
+Rientro a Svolvær
 
-SPA:
+Notte: ✅ Svolvær
 
-### Vulkana Spa
+Giorno 8
+Mercoledì 10 febbraio
+Lofoten → Tromsø
 
-- Sauna
-- Bagno turco
-- Jacuzzi esterna
+Questa giornata merita attenzione.
 
-Sera:
+Per evitare stress:
 
-Aurora Chase Tour
+Opzione consigliata
 
-Pernottamento:
+Partenza presto da Svolvær
+
+Guida fino a Evenes
+
+circa 2h30
+
+Consegna auto
+
+Volo Evenes → Tromsø
+
+Arrivo nel primo pomeriggio
 
 Tromsø
+Porto
+Cattedrale Artica
+Fjellheisen
+Esperienza SPA
 
----
+Vulkana Spa
 
-## Giorno 8
-### Tromsø → Milano
+Sauna
+Jacuzzi
+Bagno turco
+Ultima notte Aurora
 
-Mattina libera
+Tour guidato serale.
 
-Trasferimento aeroporto
+Notte: ✅ Tromsø
 
-Rientro
+Giorno 9
+Giovedì 11 febbraio
+Tromsø → Milano
 
----
+Volo:
 
-# Confronto alloggi
+11:00
 
-## Kiruna
+Consiglio:
 
-| Struttura | Tipo | Prezzo/notte |
-|------------|------|-------------:|
-| Best Western Arctic Eden | Hotel | 110-150 € |
-| Camp Ripan | Hotel | 160-220 € |
-| Appartamento centrale | Apartment | 80-120 € |
+Arrivo in aeroporto alle 09:00
+Taxi o Flybussen entro le 08:30
 
-Scelta consigliata:
+Nessuna attività programmata per la mattina.
 
-✅ Appartamento centrale
-
----
-
-## Abisko
-
-| Struttura | Tipo | Prezzo/notte |
-|------------|------|-------------:|
-| Abisko Guesthouse | Guesthouse | 100-140 € |
-| STF Turiststation | Hotel | 130-170 € |
-| Cabin | Chalet | 140-180 € |
-
-Scelta consigliata:
-
-✅ Abisko Guesthouse
-
----
-
-## Svolvær
-
-| Struttura | Tipo | Prezzo/notte |
-|------------|------|-------------:|
-| Fast Hotel | Hotel | 90-120 € |
-| Airbnb | Apartment | 90-130 € |
-| Thon Hotel Lofoten | Hotel | 180-250 € |
-
-Scelta consigliata:
-
-✅ Fast Hotel
-
----
-
-## Tromsø
-
-| Struttura | Tipo | Prezzo/notte |
-|------------|------|-------------:|
-| Comfort Hotel Xpress | Hotel | 110-150 € |
-| Enter Viking Hotel | Hotel | 120-170 € |
-| Airbnb centro | Apartment | 90-140 € |
-
-Scelta consigliata:
-
-✅ Comfort Hotel Xpress
-
----
-
-# Budget hotel
-
-## Soluzione Hotel Economica
-
-| Località | Totale |
-|-----------|--------:|
-| Kiruna (2 notti) | 260 € |
-| Abisko (2 notti) | 260 € |
-| Svolvær (2 notti) | 220 € |
-| Tromsø (1 notte) | 140 € |
+Variante pernottamenti consigliata
+Località	NottiCopenaghen	1
+Kiruna	2
+Abisko	2
+Svolvær	2
+Tromsø	1
 
 Totale:
 
-880 €
+8 notti
 
----
+Budget aggiornato (2 persone)
+Voce	TotaleVoli internazionali	760 €
+Hotel Copenaghen	120 €
+Hotel/Appartamenti Nord	700 €
+Treni	60 €
+Auto + carburante	270 €
+Volo Evenes-Tromsø	180 €
+Icehotel	70 €
+Aurora Tour	240 €
+SPA Vulkana	140 €
+Pasti	600 €
+Totale coppia
 
-## Soluzione Mista Consigliata
+3.140 €
 
-- Appartamento Kiruna
-- Guesthouse Abisko
-- Fast Hotel Svolvær
-- Comfort Xpress Tromsø
+Totale persona
 
-Totale:
+1.570 €
 
-650-700 €
+Obiettivo 1.500 €/persona
 
----
+Facilmente raggiungibile scegliendo:
 
-# Attività
+Airbnb a Kiruna
+Camera privata in Abisko Guesthouse
+Fast Hotel Svolvær
+Wakeup Copenhagen
 
-## Icehotel
-
-Costo:
-
-35 € persona
-
----
-
-## Aurora Chase Tour
-
-Costo:
-
-120 € persona
-
----
-
-## Vulkana SPA
-
-Costo:
-
-70 € persona
-
----
-
-# Budget Finale (2 persone)
-
-| Voce | Importo |
-|--------|--------:|
-| Voli internazionali | 760 € |
-| Hotel e appartamenti | 680 € |
-| Treni | 60 € |
-| Auto + carburante | 270 € |
-| Volo interno | 180 € |
-| Aurora Tour | 240 € |
-| SPA | 140 € |
-| Pasti | 500 € |
-
-## Totale coppia
-
-**2.830 €**
-
-## Totale persona
-
-**1.415 €**
-
----
-
-# Punti Aurora Boreale
-
-Classifica probabilità:
-
-1. Abisko ⭐⭐⭐⭐⭐
-2. Tromsø ⭐⭐⭐⭐
-3. Lofoten ⭐⭐⭐⭐
-4. Narvik ⭐⭐⭐
-
----
-
-# Punti panoramici imperdibili
-
-## Svezia
-
-- Icehotel
-- Lago Torneträsk
-- Abisko National Park
-
-## Norvegia
-
-- Henningsvær
-- Austnesfjorden
-- Ramberg Beach
-- Hamnøy
-- Sakrisøy
-- Reine
-- Fjellheisen (Tromsø)
-
----
+Risparmio stimato: 150-200 € sulla coppia, portando il totale a circa 1.470-1.500 € per persona.
 
 https://sites.google.com/view/itinerariolapponiaenorvegia/full-page-embed
 
-# Consiglio finale
-
-Per una prima esperienza artica nel Nord Europa, l'itinerario:
-
-Milano → Kiruna → Abisko → Narvik → Lofoten → Tromsø → Milano
-
-offre il miglior equilibrio tra:
-
-- Aurora Boreale
-- Paesaggi innevati
-- Road trip
-- Costi
-- Comfort
-- Esperienze iconiche
