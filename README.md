@@ -1,11 +1,10 @@
-Di seguito trovi la versione aggiornata dell'itinerario con le date e gli orari che hai già fissato:
 
-Lapponia Svedese + Norvegia Artica
+# Lapponia Svedese + Norvegia Artica
 3 → 11 febbraio 2027 (9 giorni / 8 notti)
 
 Partecipanti: 2 persone
 
-Volo confermato:
+## Volo confermato:
 
 03/02 Milano → Copenaghen
 Arrivo a Copenaghen ore 20:00
