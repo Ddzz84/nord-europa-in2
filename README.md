@@ -45,7 +45,7 @@
 **Milano ➔ Copenaghen**
 
 * **Arrivo previsto:** Ore 20:00
-* **Pernottamento:** ✅ Copenaghen
+* **Pernottamento:** ✅ Copenaghen: City Hotel Nebo
 
 #### Serata & Attività Consigliate
 * **Check-in nelle zone migliori:** Nyhavn, Kongens Nytorv o Stazione Centrale.
